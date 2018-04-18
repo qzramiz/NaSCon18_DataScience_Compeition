@@ -1,1 +1,1 @@
-Winner's submission
+Winner submission
